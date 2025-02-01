@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning in middle school
 - 💞️ I’m looking to collaborate on nice and kind people 
-- 📫 How to reach me don't email me i will mark as spam
+- 📫 How to reach me kngmar081@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: i am 13 and i am very good at windows pc
 
